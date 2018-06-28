@@ -5,7 +5,7 @@ title: About
 
 
 {:.center}
-![cardinal](/images/aboutme1.jpg){: .center-image }  
+![cardinal](/images/aboutme1.jpg#center)  
 
 
 
