@@ -1,7 +1,6 @@
 ---
 layout: post
 title: Hello World!
-comments:true
 ---
 Hello World! Still trying to get set up. Test test test....
 
