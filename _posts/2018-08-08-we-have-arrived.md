@@ -49,6 +49,3 @@ Prayer requests:
 Thanks,
 Hannah
 
-I'm storing all my emails(with some more added about training) at my blog at hannahling.com.
-tepper.jpg​
-At the brand-new business school on campus!
