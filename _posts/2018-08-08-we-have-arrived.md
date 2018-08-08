@@ -41,10 +41,10 @@ We're receiving so much grace from the team and older sisters who are loving us,
 Our team meets every night to work and pray. Ministry hasn't even started yet, but we're trying to bathe the semester in prayer. Angell and Judy are new to the campus too, so we're trying to develop a heart for the students so that no matter what we face, we would just try to love them. CMU students are very smart, involved, and ambitious, with little in their schedule or bandwidth left over to think about the big questions. 
 
 Prayer requests:
--Please pray hard for our housing that the landlord would have mercy and let us live there! 
--For the incoming students to be spiritually open
--For us to be an encouragement and strength to each other
--For me to grow in my heart for God, appreciation of the gospel, and willingness to do whatever is needed rather than just the most "important" things
+*Please pray hard for our housing that the landlord would have mercy and let us live there! 
+*For the incoming students to be spiritually open
+*For us to be an encouragement and strength to each other
+*For me to grow in my heart for God, appreciation of the gospel, and willingness to do whatever is needed rather than just the most "important" things
 
 Thanks,
 Hannah
