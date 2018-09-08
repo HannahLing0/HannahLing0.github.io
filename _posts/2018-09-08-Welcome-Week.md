@@ -7,9 +7,6 @@ comments: true
 {:.center}
 ![cardinal](/images/bigteam.jpg){: .center-image } 
 
-43639204774_43ecb835e1_k.jpg​
-
-
 Hi all,
 Thanks to everyone who has been faithful in keeping up with me and reading these and writing to me! As some of you may have heard, my first two weeks was difficult as I struggled with homesickness, tiredness(with our schedule of sleeping at 12/12:30 and waking up at 6:45 every day), and my poor character/laziness/relational conflict. It was also hard to adjust to being in a new place where I didn't know anything and new team(that was also trying to get to know each other).
 
